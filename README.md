@@ -1,2 +1,5 @@
-# pk-xd-free-gems-and-coins-generator
-PK XD unlimited free coins and gems app(generator) cheat codes 2022
+# PK XD unlimited free coins and gems app(generator) cheat codes 2022
+
+PK XD unlimited free coins and gems app(generator) cheat codes 2022 - Before you buy high priced goods from customers, be sure to smoke with them. This is particularly helpful for Mary's painting because it will reduce the price all the way from 7000 coins to 3500 coins. If you do this first, the price of other items will drop by about 1 / 3. At level 14, you will unlock the ability to buy underwear from cheerleader Sandy. The game gives a very vague explanation of the role of PK XD codes, saying "they can resist Metamorphosis". When you buy underwear, they hang on your wall. Whenever the policeman Mr. Malone comes, if you tell him to get away, he will steal his underwear and leave your plants alone. After level 15, when you unlock alien trance vinyl, nothing else in the game can be unlocked. At this point, you will have everything available, so the rest is to continue to grow and sell pk xd free gems app and avoid gangsters, police and aliens. However, when weed is updated, developers are expected to add some additional benefits to the game.
+
+<a href="https://windmod.icu/pk-xd/">try now</a>
